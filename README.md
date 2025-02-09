@@ -14,7 +14,9 @@ Please pull and add code, documentation, ideas, any problems you've done for pra
 
 Anything helps, locations of issues, what is said on the rings, how many different words are per,
 what they do, etc. The spirits liked to have code and simulatin be fore implementation to make sure
-it would work.
+it would work. What has been done to help, changes in lifestyle, any and all information is greatly
+appreciated. If anyone knows other places to look for information that would be great as well.
+Hoping there is a place were we can have all the information in one location.
 
 im still alive! :) Shout out to the mini maidens. <3 goes out to Ra, God of nature, mother nature
 and of course mah crones.
