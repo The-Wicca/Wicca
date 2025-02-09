@@ -20,3 +20,8 @@ Hoping there is a place were we can have all the information in one location.
 
 im still alive! :) Shout out to the mini maidens. <3 goes out to Ra, God of nature, mother nature
 and of course mah crones.
+
+Btw, The Crone Sisters were probably solitary and not Wicca, also, they were really talented.
+I got stories.
+
+Anyone with the quotes please contribute. People will lose there fucking mind. ;)
